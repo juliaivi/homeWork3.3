@@ -17,7 +17,7 @@
 
 Глаза манула имеют жёлтый цвет, [зрачки](https://ru.wikipedia.org/wiki/%D0%97%D1%80%D0%B0%D1%87%D0%BE%D0%BA) при ярком свете остаются круглыми, в отличие от таковых у [кошек](https://ru.wikipedia.org/wiki/%D0%9A%D0%BE%D1%88%D0%BA%D0%B8_(%D1%80%D0%BE%D0%B4)), которые становятся щелевидными. Среди кошачьих такую же особенность имеют представители родов [пумы](https://ru.wikipedia.org/wiki/%D0%9F%D1%83%D0%BC%D1%8B), [пантеры](https://ru.wikipedia.org/wiki/%D0%9F%D0%B0%D0%BD%D1%82%D0%B5%D1%80%D1%8B) и [гепарды](https://ru.wikipedia.org/wiki/%D0%93%D0%B5%D0%BF%D0%B0%D1%80%D0%B4%D1%8B). В отношении манула неизвестно, почему этот вид имеет круглые зрачки.
 
-![](https://ru.wikipedia.org/wiki/%D0%9C%D0%B0%D0%BD%D1%83%D0%BB#/media/%D0%A4%D0%B0%D0%B9%D0%BB:Chat_de_Pallas_-_M%C3%A9nagerie_du_Jardin_des_Plantes_(cropped).JPG)
+![манул](https://upload.wikimedia.org/wikipedia/commons/f/f4/Chat_de_Pallas_-_M%C3%A9nagerie_du_Jardin_des_Plantes_%28cropped%29.JPG)
 
 ## Распространение и численность.
 
